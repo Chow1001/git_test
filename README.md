@@ -1,1 +1,1 @@
-this is me trying not to loose my sanity
+this is me trying not to lose my sanity
